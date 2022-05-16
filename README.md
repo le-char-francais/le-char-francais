@@ -1,0 +1,5 @@
+- 👋 Hey, I’m Adrien
+- 👀 I’m interested in history, chemistry and coding
+- 🌱 I’m currently in my last year of high-school in France, learning physics, chemistry and conding
+- 💞️ I’m looking for a collaborator on a project for a mobile app
+- 📫 How to reach me : my discord server ()
